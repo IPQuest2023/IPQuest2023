@@ -1,1 +1,1 @@
-“Philosophy is common sense with big words”.
+## ***“Philosophy is common sense with big words”.***
